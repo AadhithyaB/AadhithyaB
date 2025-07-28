@@ -1,6 +1,8 @@
 ## Hi there 👋
+    ⬇       ⬇       ⬇
 Machine Learning Engineer
 
+Go Fast Boiii💨💨💨💨
 
 ![Coder Vibes](https://media.giphy.com/media/78XCFBGOlS6keY1Bil/giphy.gif)
 
